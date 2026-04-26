@@ -1,4 +1,9 @@
 26.4.24(태조)
+
+지금 가격 대비 50% 이상 상승 가능할 것으로 예상
+<img width="1017" height="355" alt="image" src="https://github.com/user-attachments/assets/d6775ec3-52c2-4340-96a7-b406bc658809" />
+
+
 “중국+ 그룹 물량 확대 기대”
 
 1Q26: 실적 고성장 확인
